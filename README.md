@@ -1,0 +1,2 @@
+# Logica-SuperTrunfo
+Trabalho Estacio
